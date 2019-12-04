@@ -6,6 +6,7 @@ Go back thru chapters 1-6 and find the activities that the author wants you to w
 
 Taking Souls - The ability to use the expectations of others on yourself to your advantage by keeping them in place with your extensive ability to keep up and not crack under their pressure.. (this is fascinating should look into it more).
 
+p.130ish
 Highlight from the author - "Taking Souls is a ticket to finding your own reserve power and riding a seond wind."
 Taking someone's soul means you've gained a tactical advantage. Know the terrain you're operating in, when and where you can push boundaries and when you should fall in line."
 
