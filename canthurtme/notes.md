@@ -12,3 +12,11 @@ Taking someone's soul means you've gained a tactical advantage. Know the terrain
 
 Figure out what boundaries you can push to catch/ride your second wind! https://d13ezvd6yrslxm.cloudfront.net/wp/wp-content/images/avatar-the-last-airbender-e1537288195158-700x363.jpg
 
+
+
+
+
+Challenges:
+
+Challenge #4 Choose any competitive situation you're in right now. Who isyour opponent? Is it your teacher boss or unruly client? No matter how they're treating you there is only one way to not earn their respect, but turn the tables. Excellence.
+-At work I've already been doing this to a great extent. But the question is who else? Paul comes to mind about leetcode. Perhaps I show him proof of the leet code problems I do every day and do this for an extended period of time. Perhaps these posts are for the leetcode discussion boards.
