@@ -38,3 +38,7 @@ You will be made fun of. you will feel insecure. you may not be the best all the
 Chapter 8 Summary: He had a heart attack...
 
 Chapter 8 Challenge: Take notes of how you spend your time on your week.
+
+Chapter 9 Summary: Platoon team missions. He was the head of his team but they couldn't handle tough stuff. He felt responsible in some way.. had to skip that part because natural readers glitched. He hit his glass ceiling becuase of his injuries?
+
+Challenge 9 Challenge:Torch the complacey you feel gathering around you, your coworkers, and teammates in that rare air. Continue to put obstacle in front of you, because that's where you'll find the friction that will help you grow even stronger. Before you know it, you will stand alone. 
