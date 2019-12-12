@@ -24,3 +24,8 @@ Challenge #4 Choose any competitive situation you're in right now. Who isyour op
 Chapter 5 Summary: Straight up about what hell week was like and how he finally cracked his foundation and would seek out pain like running with broken legs to calouce his mind. Each step mean more calouce and he was getting stronger.
 
 chapter 5 Challenge: Choose any obstacle in your way, or set a new goal, and visualize overcoming or achieving it. I start by painting a picture of what my success looks and feels like. I'll think about it every day and that feeling propels me forward when I'm trainign, or taking any task I choose. You must also visualize the challenges. Goggins would drive a racing course before he would run on it. That would get him ready for any potential challenges. Strategic visualization ahead of time. Calouse the mind.
+
+Chapter 6 Summary: He went on an ultra marathon 100 miles. Similar to your half marathon (13miles). This is when he reached in his emotional cookie jar to relish his past accomplishments. He remembered all the pitfalls he overcame in his life. The fact that he figured out the ASVAB, became a better reader since he cheated in childhood, passed BUD/S, etc. Think of starting a bonfire, you start with a small piece and barely get a fire going. Then when you add to it you get a bunch. That's what it's like finding that inner drive to get you thru a marathon. But come on losing toe nails? I don't need to lose my toe nails to master my own mind. God is the master of my mind! Pain is not and to some extent it's foolish to think Pain is the master really...
+
+Challenge: Make a list of cookies for your cookie jar. This I find to be valuable. I can remember the race I won in elementary school. I actually have so many it will be fun.. :)
+
