@@ -35,3 +35,6 @@ Chapter 7 Summary: He ran a lot of races and realized there's a resivoir of pote
 
 You will be made fun of. you will feel insecure. you may not be the best all the time. you me be the only portuguese guy, you may feel alone. Get over it!
 
+Chapter 8 Summary: He had a heart attack...
+
+Chapter 8 Challenge: Take notes of how you spend your time on your week.
