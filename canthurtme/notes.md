@@ -46,3 +46,7 @@ Challenge 9 Challenge:Torch the complacey you feel gathering around you, your co
 Chapter 10 Summary: He got injured and couldn't run anymore. He only could do pullups to raise for seal money now. He did it so much his hands looked like fucking hamburger's literally disgusting. 
 
 Chapter 10 Challenge: It's all about mindset and where most people fail short is not thinking about their failures/successes during the preperation and execution stage of their attempt at some goal. Make a list of things you can fix in your failures, be brutly honest write them out and study them. Look at your calendar and make another attempt as soon as possibe. If you fall while chasing the carrot on a stick, get back up and keep running. That's a metaphor for life.
+
+Chapter 11 Summary: He cracked. Did more running after a healing up but he finally realized there was unconqured pain in his childhood and he let it go. He forgave everyone in his life. He realized he cheated as a kid because he was seeking people to like him.. he took it personally that they did not and made his life hell to restore it. He retired. He returned to ultras after a full body healing.
+
+Chapter 11 Challenege: When people are doubting you, you answer with one simple question. What if? (I use we'll see...)
